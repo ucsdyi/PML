@@ -1,0 +1,1 @@
+Please see Section 4.1 of the supplementary material (pdf). 
